@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KyogreBrothers
-- 👀 I’m interested in Pokemon
+- 👀 I’m interested in why do you want my personal information
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me ...
